@@ -1,1 +1,2 @@
 # Lagos-y-lagunas-como-recurso
+Los lagos y lagunas son acumulaciones permanentes de agua en depresiones de lecho impermeable. Revisten interés como reguladores del curso de los ríos, como fuente de energía, como atractivo turístico y por su riqueza ictícola. Lagos. Todos los lagos de la Argentina se encuentran localizados en la Patagonia, sea en los mismos Andes (lagos de origen tectónico), sea en la región extra cordillerana (de origen erosivo). Algunos de los lagos cordilleranos son compartidos por la Argentina y Chile.  
